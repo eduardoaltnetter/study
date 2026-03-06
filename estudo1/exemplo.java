@@ -1,0 +1,1 @@
+este eh um exemplo n eh codigo, mardito.
